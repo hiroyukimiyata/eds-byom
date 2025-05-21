@@ -1,1 +1,0 @@
-# hiroyukimiyata.github.io
